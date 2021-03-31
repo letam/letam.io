@@ -3,5 +3,18 @@ plugins:
 
 remote_theme: "mmistakes/so-simple-theme@3.2.0"
 
-title: "Hello World"
-description: "Words & Pictures"
+title: "Tam's Crap"
+description: "Freak of Nature"
+
+
+# Footer Links
+footer_links:
+  - title: Twitter
+    url: https://twitter.com/slowpowk
+    icon: fab fa-twitter-square
+  - title: Instagram
+    url: https://instagram.com/tamueljackson
+    icon: fab fa-instagram
+  - title: GitHub
+    url: https://github.com/letam
+    icon: fab fa-github-square
