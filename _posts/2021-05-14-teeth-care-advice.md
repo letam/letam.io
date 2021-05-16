@@ -133,4 +133,4 @@ Anyway. Bye.
 
 References:
 <br/>
-[Effect of western diet on facial and dental development - Growing strong bodies and beautiful smiles By Lotus Dental](https://www.lotusdental.com.au/post/effect-of-western-diet-on-facial-and-dental-development)
+<a href="https://www.lotusdental.com.au/post/effect-of-western-diet-on-facial-and-dental-development" target="_blank">Effect of western diet on facial and dental development - Growing strong bodies and beautiful smiles<br/>Lotus Dental</a>
