@@ -129,7 +129,8 @@ I also wish I didn't eat so much cereal and rice growing up.
 
 Anyway. Bye.
 
+<br/>
 
 References:
-
+<br/>
 [Effect of western diet on facial and dental development - Growing strong bodies and beautiful smiles By Lotus Dental](https://www.lotusdental.com.au/post/effect-of-western-diet-on-facial-and-dental-development)
