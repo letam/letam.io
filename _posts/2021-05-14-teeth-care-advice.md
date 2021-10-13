@@ -6,13 +6,13 @@ title: Teeth Care Advice
 How to keep your teeth strong?
 <br/>
 <br/>
-Let’s look at some cultures.
+Let’s look at some cultures...
 
 
 Actually, I'll cut to the chase: there was an American dentist named Dr. Weston Price, who in the 1930s travelled the world and studied "primitive" cultures of the world. These cultures were not yet exposed to processed foods, especially white flour and added sugar.
 
 
-In studying so many diverse cultures and diets he was able to pinpoint common factors in all the traditional diets that ensured that the children grew up strong and straight, maximising their genetic potential:
+In studying so many diverse cultures and diets he was able to pinpoint common factors in all the traditional diets that ensured that the children grew up with their teeth being strong and straight, maximising their genetic potential:
 
 
 - All of them consumed a complete range of minerals and fat soluble vitamins from either **high-vitamin butter, seafood, cod-liver oil, seal oil or animal organs with their fat**.
@@ -24,7 +24,7 @@ In studying so many diverse cultures and diets he was able to pinpoint common fa
 - Sweets (even good, natural sweets) were used rarely or sparingly, only for occasions of ritual, celebration or special feasting.
 
 
-They had rather basic teeth cleaning equipment. 
+They had rather basic teeth cleaning equipment. No fancy commercial toothpastes.
 <br/>
 No plastic. And their teeth are so clean. Bright. Strong. Healthy.
 
@@ -33,7 +33,7 @@ And meanwhile in lots of the developed world...
 <br/>
 We have fancy electric toothbrushes and we pay lots of money to see certified dentists.
 <br/>
-Perhaps. Not frequently enough. Especially if we're erratic types.
+And perhaps not frequently enough. Especially if we're erratic types with poorly managed stress and habits.
 <br/>
 We can clean our teeth like crazy but they still rot.
 
