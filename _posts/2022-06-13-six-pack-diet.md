@@ -27,28 +27,24 @@ You were born with the powers of a god.
 <br/>
 Why not chisel your body and mind and honour the potential and gift of your spirit? ...
 
-<br/>
-
 The point of the six-pack isn't merely to have a six-pack.
-
+<br/>
 How superficial would that be?
-
+<br/>
 The point is to look great when you're naked.
-
+<br/>
 Half kidding.
-
+<br/>
 The greater point is that you'll become one who has mastered their activities and appetites to an impressive and powerful level.
-
 <br/>
 
 Evolutionarily, we’re at the top of the food chain.
-
+<br/>
 We’re masters of adaptation. We are change makers.
-
+<br/>
 As humans, we've perhaps conquered the world.
-
+<br/>
 But that means nothing if we haven't conquered the demons that dwell within our minds and hearts.
-
 <br/>
 
 Simple, right?
@@ -69,7 +65,6 @@ So what are you gonna do?
 Are you gonna abort your dreams just because you face a lot of pain and hardship?
 <br/>
 Fuck easy.
-
 <br/>
 
 **Note:** As with many things, this is a work in progress.
