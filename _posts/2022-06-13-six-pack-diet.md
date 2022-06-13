@@ -25,7 +25,7 @@ that trunk?
 You were born with the powers of a god.
 <br/>
 <br/>
-Why not chisel your body and mind and honour the potential and gift of your spirit? ...
+Why not chisel your body and mind to honour the potential and gift of your spirit? ...
 
 The point of the six-pack isn't merely to have a six-pack.
 <br/>
