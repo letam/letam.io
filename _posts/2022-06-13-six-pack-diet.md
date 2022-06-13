@@ -25,13 +25,13 @@ that trunk?
 You were born with the powers of a god.
 <br/>
 <br/>
-Why not chisel your body and mind and honour the potential and gift of your spirit?
+Why not chisel your body and mind and honour the potential and gift of your spirit? ...
 
 <br/>
 
 The point of the six-pack isn't merely to have a six-pack.
 
-How superficial that would be.
+How superficial would that be?
 
 The point is to look great when you're naked.
 
@@ -51,4 +51,25 @@ But that means nothing if we haven't conquered the demons that dwell within our 
 
 <br/>
 
-**Note:** This is a work in progress.
+Simple, right?
+<br/>
+Never said that it was going to be easy...
+<br/>
+<br/>
+Great change is neither comfortable nor easy.
+<br/>
+Transformation takes time.
+<br/>
+It's uncomfortable and can be rather painful.
+<br/>
+Like delivering a baby.
+<br/>
+So what are you gonna do?
+<br/>
+Are you gonna abort your dreams just because you face a lot of pain and hardship?
+<br/>
+Fuck easy.
+
+<br/>
+
+**Note:** As with many things, this is a work in progress.
